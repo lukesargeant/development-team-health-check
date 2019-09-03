@@ -1,4 +1,4 @@
-## Software Development Team Health Check
+# Software Development Team Health Check
 
 My question deck - inspired by Spotify’s Team Health Check.
 
