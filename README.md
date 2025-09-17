@@ -121,7 +121,7 @@ We’re stagnating and no one cares. It’s getting me down
 
 ## Team Spirit
 
-We have better chemistry than Kirk and Spock. We’re the bloody A-team
+We have better chemistry than Kirk and Spock. We’re the flippin' A-team
 
 We have fun doing what we love together
 
@@ -129,4 +129,4 @@ Everyone gets on well enough to do a good job
 
 There is some friction at times that isn’t useful to the process
 
-Kill me now :-)
+I. Hate. This. Place.
